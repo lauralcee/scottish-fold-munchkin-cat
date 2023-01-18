@@ -1,1 +1,3 @@
-# scottish-fold-munchkin-cat
+# Scottish Fold Munchkin Cat
+The Munchkin cat has a dominant mutant gene which presents in shortened legs. Unlike the Scots breed, Munchkins hail from Louisiana in the United States where the forerunner was bred with a domestic cat to launch what was to become a breed all its own.
+The [scottish fold munchkin cat](https://scottfoldmunchkins.tripod.com/) is a pretty healthy breed, but there are some hereditary health problems in the breed: Osteochondrodysplasia, a developmental abnormality that affects cartilage and bone development. Polycystic kidney disease (PKD) Cardiomyopathy, a form of heart disease.
